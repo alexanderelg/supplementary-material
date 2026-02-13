@@ -1,3 +1,5 @@
+[This document](/Supplementary material.pdf) includes supplementary tables and a list of informants
+
 Below are links to all European Communication I reference in my paper
 
 | Date |	Name	|Institution|	Link|
